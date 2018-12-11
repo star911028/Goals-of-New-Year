@@ -23,3 +23,7 @@
 >个人寄语：With love, better life.
 
 1. 去看一次大海
+## 大猪
+>个人寄语：love self.
+
+1. 带老妈坐灰机旅行一次。
